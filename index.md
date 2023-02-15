@@ -39,18 +39,23 @@ Please feel free to inquire about any of the items outlined above using the foll
 ## Frequently Asked Questions
 
 ***Q: What are your hourly rates for tutoring sessions?***
-At the current moment, I am offering **one-hour tutoring sessions at a rate of $50/hour**. I offer reduced rates for multiple-hour sessions (i.e., two- or three-hour sessions).
+
+> At the current moment, I am offering **one-hour tutoring sessions at a rate of $50/hour**. I offer reduced rates for multiple-hour sessions (i.e., two- or three-hour sessions).
 
 ***Q: Do you offer reduced or discounted rates?***
-I always try to reserve a limited number of tutoring spots for those students/families who demonstrate financial need. If you are *unable* to afford my posted rates due to financial circumstances, please mention this in the open-response section when completing my intake forms. I believe that motivated, persistent, and hardworking students should **not** have their opportunities for success limited as a result of financial hardship.
+
+> I always try to reserve a limited number of tutoring spots for those students/families who demonstrate financial need. If you are *unable* to afford my posted rates due to financial circumstances, please mention this in the open-response section when completing my intake forms. I believe that motivated, persistent, and hardworking students should **not** have their opportunities for success limited as a result of financial hardship.
 
 ***Q: Do you offer free trial sessions?***
-No---all sessions are charged at the same rate. However, I am more than happy to schedule a brief call or in-person meeting with you to answer your questions before you decide to commit to any of my services.
+
+> No---all sessions are charged at the same rate. However, I am more than happy to schedule a brief call or in-person meeting with you to answer your questions before you decide to commit to any of my services.
 
 ***Q: What are your regular tutoring hours?***
-I have a flexible schedule and will work with you to find convenient dates/times for tutoring sessions. I am available on all days of the week (except Mondays) and can accommodate sessions both *before and after school hours.*
+
+> I have a flexible schedule and will work with you to find convenient dates/times for tutoring sessions. I am available on all days of the week (except Mondays) and can accommodate sessions both *before and after school hours.*
 
 ***Q: Where do you conduct your tutoring sessions?***
-I can accommodate sessions both at-home and in public spaces (such as libraries). I will ask you about this when I first contact you upon having completed the appropriate intake form.
+
+> I can accommodate sessions both at-home and in public spaces (such as libraries). I will ask you about this when I first contact you upon having completed the appropriate intake form.
 
 If you have a question that hasn't been addressed above, please don't hesitate to reach out to me via my general contact form here: [**[click here for General Inquiry Form]**](https://forms.gle/FX5bP7RuFEFLt8N57).
