@@ -1,6 +1,3 @@
-# Markham Tutoring & Academic Services
-
-
 ## A Quick Introduction
 
 Hi, I'm Rob! It's great to meet you---thanks for visiting my website! If you're looking for high-quality tutoring or want to learn new skills related to math, science, or programming, I'm confident that you're in the right place.
